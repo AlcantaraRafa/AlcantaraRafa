@@ -5,9 +5,12 @@
 #### Não como peixe
 #### Gosto de comer 
 #### jogo LOL <3
-#### jogo Roblox
+#### gosto de anime
 #### Sou um ser pensante en construção 
 
+![image](https://user-images.githubusercontent.com/110928989/184941509-c6638cc6-2c82-48f9-9b88-f8705f1ab4da.png)
+
+![image](https://user-images.githubusercontent.com/110928989/184942411-7cf5ee87-8480-4fce-8ada-a68582401edd.png)
 
 <!--
 **AlcantaraRafa/AlcantaraRafa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
