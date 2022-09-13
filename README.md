@@ -6,7 +6,7 @@
 #### Gosto de comer 
 #### jogo LOL <3
 #### gosto de anime
-#### Sou um ser pensante en construção 
+#### Sou um ser pensante em construção 
 
 
 
